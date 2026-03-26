@@ -1,7 +1,5 @@
-![image_alt](https://github.com/C4NIBAYL1SM3/hOo-ney/blob/4d9d63f4821cf4678e69a75198c1ace3857d2bda/Tak%20berjudul310_20260326103334.png) 
-‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎𓏲ּּ ‎ ‎　 　 𝄢　 　 ‎ ‎　 　 Yuki ‎ ‎　 　 ‎ ‎　.　 ‎ ‎　 　 she/her/he/him . ‎ ‎　
+![image_alt](https://github.com/C4NIBAYL1SM3/hOo-ney/blob/d888ce378a57f28568e6498c7cd8c06117e60566/Tak%20berjudul311_20260326103431.png) 
 
-‎ ‎　 　 ‎ ‎　 　 　 minor‎ ‎　 　 ᥬᩤ ‎ ‎　 　 ‎ ‎　 　 GENDERFLUID+BISEX —— ‎ ‎　 　 taken
+**‎ ‎　 　 ‎ ‎　 　 He/him**‎ ‎　 .　 *an*dre ‎ ‎　 　 [Tiktok](https://www.tiktok.com/@rmadhani.x?_r=1&_t=ZS-9508tlA2I5Z) 
 
-
-![image_alt](https://github.com/C4NIBAYL1SM3/hOo-ney/blob/4d9d63f4821cf4678e69a75198c1ace3857d2bda/Tak%20berjudul309_20260326102934.png) ‎ 　 [@Childoflight10](https://github.com/Childoflight10) ‎ ‎　[@C4NIBAYL1SM3](https://github.com/C4NIBAYL1SM3)　 ‎ ‎[@hOoney](https://github.com/hOo-ney)　 　 ‎[@deathsoulsy](https://github.com/deathsoulsy) ‎　 　 
+‎ ‎　 　‎ ‎　 　 Multifandom ‎ ‎　 　‎ ‎　 　  **22**.10
